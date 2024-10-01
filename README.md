@@ -1,3 +1,3 @@
-# Cosmic-Cheats-Revamp
+# Solar-Cheats-Revamp
 
 New Design :rizz:
